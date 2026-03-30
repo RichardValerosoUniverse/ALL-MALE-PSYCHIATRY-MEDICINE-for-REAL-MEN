@@ -245,6 +245,6 @@ This project was started by [dreamingechoes](https://github.com/dreamingechoes).
 
 ## THE VALEROSO CITY IS DAVAO CITY IN THE PHILIPPINES
 
-## PSYCHIATER MEDICINE for REAL MEN
+## PSYCHIATRIST RMV's MEDICINE for REAL MEN
 
 ## Richard M. Valeroso: World Without End Version 👑 🇵🇭 😄 🎗️
