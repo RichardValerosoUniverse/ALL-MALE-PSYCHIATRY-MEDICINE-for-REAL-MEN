@@ -1,5 +1,4 @@
 # The Greatest Wealth is money, money, money, right? Answer: It is always The Valeroso City!
-## Awesome Mental Health: Real Men Version
 
 <p align="center"><img src="./media/logo.png"></p>
 
