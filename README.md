@@ -1,4 +1,4 @@
-# The Greatest Wealth is money, money, money, right? Answer: It is always The Valeroso City!
+# The Greatest Wealth is always The Valeroso City!
 
 <p align="center"><img src="./media/logo.png"></p>
 
