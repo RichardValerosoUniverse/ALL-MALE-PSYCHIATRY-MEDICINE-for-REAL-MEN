@@ -242,8 +242,8 @@ All contributors are expected to adhere to the [Code of Conduct](https://github.
 
 This project was started by [dreamingechoes](https://github.com/dreamingechoes).
 
-## THE VALEROSO CITY IS DAVAO CITY IN THE PHILIPPINES
+## **THE VALEROSO CITY IS DAVAO CITY IN THE PHILIPPINES**
 
-## PSYCHIATRIST RMV's MEDICINE for REAL MEN PSYCHIATRY
+## **RMV Hospital for Psychiatry, Addiction Medicine, and Rehabilitation Medicine**
 
-## Richard M. Valeroso: World Without End Version 👑 🇵🇭 😄 🎗️
+## **Richard M. Valeroso: World Without End Version** 👑 🇵🇭 😄 🎗️
