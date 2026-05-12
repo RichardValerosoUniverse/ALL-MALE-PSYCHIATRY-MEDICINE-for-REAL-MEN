@@ -241,9 +241,3 @@ Please see [CONTRIBUTING](https://github.com/dreamingechoes/awesome-mental-healt
 All contributors are expected to adhere to the [Code of Conduct](https://github.com/dreamingechoes/awesome-mental-health/blob/master/CODE_OF_CONDUCT.md) of the project. (Contributor Covenant)
 
 This project was started by [dreamingechoes](https://github.com/dreamingechoes).
-
-## **THE VALEROSO CITY IS DAVAO CITY IN THE PHILIPPINES**
-
-## **RMV Hospital for Psychiatry, Addiction Medicine, and Rehabilitation Medicine**
-
-## **Richard M. Valeroso: World Without End Version** 👑 🇵🇭 😄 🎗️
