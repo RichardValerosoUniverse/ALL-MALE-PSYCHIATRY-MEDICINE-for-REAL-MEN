@@ -1,5 +1,3 @@
-# The Greatest Wealth is always The Valeroso City!
-
 <p align="center"><img src="./media/logo.png"></p>
 
 <p align="center">
